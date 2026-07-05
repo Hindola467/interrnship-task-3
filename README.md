@@ -1,1 +1,0 @@
-# interrnship-task-3
